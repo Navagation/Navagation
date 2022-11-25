@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Navagation
+- 👀 I’m interested in kitties
+- 🌱 I’m currently learning second grade
+- 💞️ I’m looking to collaborate on sleeping
+- 📫 How to reach me: 33ezhu@pinewood.edu
+- I love chicken nuggets and dumplings, and buns!
+-✨ Anyway, this is special ✨ 
